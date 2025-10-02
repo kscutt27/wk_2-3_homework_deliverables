@@ -1,0 +1,20 @@
+**Nickname**: Mr.K
+
+**Net income**: 450k
+
+**Group leader**: ⛈ T.I.Q.S. ⛈ 
+
+
+
+
+
+**Favorite Hobby**:
+
+![](./hobby.jpg)
+
+
+
+
+**Happy Place**:
+
+![](./happy_place.jpg)
